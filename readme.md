@@ -1,1 +1,1 @@
-- sauf celle a l'ananas
+- sauf celle a l'ananas *
