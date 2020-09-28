@@ -1,0 +1,1 @@
+- sauf celle a l'ananas
